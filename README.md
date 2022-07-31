@@ -4,6 +4,6 @@
 - 🤔 I’m looking to collaborate to create an online store .
 - 📫 How to reach me:
  lomakin.plex@mail.ru / vk.com/alfa952
-- ⚡ My hobbies: Swimmer and skateboarder
+- ⚡ My hobbies: Swimming and skateboarding
 
 
