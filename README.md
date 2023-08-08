@@ -7,7 +7,7 @@
 - ⚡ My hobbies: Swimming and RcDrift
 
 I'm a team member Street-Illegal_SPB
-Our YouTube chenele: https://www.youtube.com/@Street_illegal_SPB?sub_confirmation=1
+Our YouTube channel: https://www.youtube.com/@Street_illegal_SPB?sub_confirmation=1
 VK :
 https://vk.com/street_illegal_spb
 t.me:
