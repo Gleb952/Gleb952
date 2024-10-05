@@ -9,7 +9,7 @@
 I'm a team member Street-Illegal_SPB
 Our YouTube channel: https://www.youtube.com/@Street_illegal_SPB?sub_confirmation=1
 VK :
-https://vk.com/street_illegal_spb
+https://vk.com/1sd7eam
 t.me:
 https://t.me/Street_illegal_SPB
 Instagram*:
